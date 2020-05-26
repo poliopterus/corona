@@ -1,1 +1,1 @@
-# Auswirkungen der Coronapandemie auf die Umwelt und das Nachhaltigkeitsbewusstsein der Bevoelkerung.
+# Auswirkungen der Coronapandemie auf die Umwelt und das Nachhaltigkeitsbewusstsein der Bevölkerung.
